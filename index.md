@@ -11,3 +11,5 @@ Gretel is one of the main protagonist of a fairy tale by the brothers Grimm. She
 * Haensel's sister
 * hates witches
 * wants to go home
+
+> All witches shall burn.
