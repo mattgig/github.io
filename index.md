@@ -1,1 +1,7 @@
-A website for my favourite character is currently being built here!
+# Gretel
+Gretel is one of the main protagonist of a fairy tale by the brothers Grimm. She is one of the siblings who discovers the witches house.
+Gretel is one of the main protagonist of a fairy tale by the brothers Grimm. She is one of the siblings who discovers the witches house.
+Gretel is one of the main protagonist of a fairy tale by the brothers Grimm. She is one of the siblings who discovers the witches house.
+Gretel is one of the main protagonist of a fairy tale by the brothers Grimm. She is one of the siblings who discovers the witches house.
+Gretel is one of the main protagonist of a fairy tale by the brothers Grimm. She is one of the siblings who discovers the witches house.
+Gretel is one of the main protagonist of a fairy tale by the brothers Grimm. She is one of the siblings who discovers the witches house.
